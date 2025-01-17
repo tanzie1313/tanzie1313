@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Tanzie 
 - I am located in Portland, Or 
-- I am currently learning all I can about full stack @ General Assembly
+- I am currently learning all I can about full stack 
 - 💞️ I’m looking to collaborate on anything and everything (the more I can learn the better)
 - 📫 How to reach me @tanziehickory@gmail.com
 - 😄 Pronouns: she/her
