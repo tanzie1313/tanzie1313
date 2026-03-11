@@ -80,7 +80,7 @@ I'm always open to collaborating on projects—the more I can learn, the better!
 [![Buy Me A Coffee](https://img.buymeacoffee.com/button-api/?text=Buy%20me%20a%20coffee&emoji=☕&slug=tanzie1313&button_colour=FFDD00&font_colour=000000&font_family=Cookie&outline_colour=000000&coffee_colour=ffffff)](https://www.buymeacoffee.com/tanzie1313)
 
 - 📫 **Email:** [tanziehickory@gmail.com](mailto:tanziehickory@gmail.com)
-- 💼 **LinkedIn:** [Tanzie](https://linkedin.com/in/tanzie1313)
+- 💼 **LinkedIn:** [Tanzie](https://linkedin.com/in/tanziehickory)
 - 🐦 **GitHub:** [@tanzie1313](https://github.com/tanzie1313)
 
 ---
